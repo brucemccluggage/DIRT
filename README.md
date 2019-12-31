@@ -1,2 +1,5 @@
 # DiRT
-##These are a few of the things that we're said towards Kyle Butler.
+##Paige McCluggage may not be the person that she has portrayed herself to be. 
+
+###Take note of the abusive side of these conversations. 
+
