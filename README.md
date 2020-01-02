@@ -1,6 +1,6 @@
 # DiRT
 
-## Paige McCluggage may not be the person that she has portrayed herself as. 
+## Paige McCluggage may not be the kind & loving person that she has portrays. 
 
 ### Take note of the abusive side of these conversations. 
 As Kyle avoids the abusive dialogue, Paige proves that she has one thing in her best interest-
